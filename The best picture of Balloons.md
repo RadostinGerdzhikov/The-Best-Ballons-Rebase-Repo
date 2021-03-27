@@ -4,5 +4,5 @@
 ![Ballonig over 
 forest](https://egmont.tours/wp-content/uploads/2018/08/Balloon-ride-in-Bled.jpg)
 ### Come with us!
-![Balloning over Grand Canyon](https://image.shutterstock.com/image-photo/panoramic-view-unusual-rocky-landscape-260nw-1445073500.jpg])
+![Balloning over Grand Canyon](https://image.shutterstock.com/image-photo/panoramic-view-unusual-rocky-landscape-260nw-1445073500.jpg)
 
