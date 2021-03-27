@@ -10,9 +10,9 @@
 ```  
 ![The beiggest balloon festival in Canada](https://images.dailyhive.com/20180730071735/10513240_10152533983784701_8519380714647832770_n.jpg)
 ## Why you have to [Join us](https://www.balloonevents.info/ballooning/41-canada/all)  
--For Funny  
--For good mood
--For smile of God
+- For Funny  
+- For good mood
+- For smile of God
 >
 >>Come with us
 >
